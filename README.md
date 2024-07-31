@@ -1,2 +1,2 @@
 # Reievandro158
-KAKAKKA todo mundo vai conhecer a dor 
+[https://media.tenor.com/CRsjcTan2zQAAAAC/dancing-goose-dancing-duck-meme.gif](link)
